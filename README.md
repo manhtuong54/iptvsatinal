@@ -1,4 +1,4 @@
-IPTV, IPTV Satın Al, IPTV Satış - Parla Server
+IPTV, IPTV Satın Al, IPTV Satış - Parla Server</br>
 </br>
 IPTV satın almak için Türkiye'nin en kaliteli ve en çok tercih edilen firması Parla Server ile tanışın. Dünyaca ünlü dijital platform içerikleri, spor kanalları, yerli-yabancı dizi ve film arşivleri ve özel VOD seçenekleri ile iptv hizmeti en uygun fiyata tek platformda tüm içerikleri sizlerle buluşturuyor.</br>
 </br>
